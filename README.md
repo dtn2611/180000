@@ -30,6 +30,6 @@
 结语
 如果你想体验日本AV免费的观看服务，这里是你最好的选择。我们为你提供最新、最高清的视频内容，并保障你的观看体验不受干扰。无论你是新手还是资深观众，这里都有你想要的一切。赶紧来体验吧，尽享最纯粹的免费视频资源！
 
-<span style="display:none;">[Canonical link] ( ）</span>
+<span style="display:none;">[Canonical link] (https://github.com/dtn2611/180000 ）</span>
 
 
